@@ -1,4 +1,4 @@
 paco
 maricarmen
 
-lucía
+lucÃ­a
